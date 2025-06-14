@@ -93,3 +93,4 @@ Feel free to reach out for collaborations!
 
 - Email: alexisjnegron@gmail.com
 - GitHub: [@alexis0822](https://github.com/alexis0822)
+- Instagram: @ajnl.dev
